@@ -8,7 +8,7 @@ description: 深度解析新加坡新跃社科大学（SUSS）毕业证书与学
 
 在近年来的亚洲高等教育版图中，新加坡新跃社科大学（Singapore University of Social Sciences，简称 SUSS）凭借其独特的应用型教育模式与社会科学导向，迅速成为备受瞩目的国际化名校。作为新加坡教育部的六所自治大学（Autonomous Universities）之一，SUSS 颁发的毕业证书与学位证（Diploma / Certificate of Degree）不仅在本地具备极高的行业认可度，在国际及中国教育部的留学认证体系中也拥有无可置疑的法定效力。
 
-![新加坡新跃社科大学毕业证样本及学位证文凭样本模版(Singapore University of Social Sciences Diploma/Certificate of Degree)](suss-diploma.jpg)
+![新加坡新跃社科大学毕业证及学位证文凭样本模版(Singapore University of Social Sciences Diploma/Certificate of Degree)](suss-diploma.jpg)
 
 本文将立足于全球职场与教育体制，全方位深度剖析 SUSS 毕业证的设计规范、防伪特征、高含金量专业以及回国办理中留服认证的核心流程，为您提供独家、不雷同的深度资讯。
 
